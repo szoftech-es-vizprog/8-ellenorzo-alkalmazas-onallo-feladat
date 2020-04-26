@@ -1,0 +1,1 @@
+# 8-ellenorzo-alkalmazas-onallo-feladat
